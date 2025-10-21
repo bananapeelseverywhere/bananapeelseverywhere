@@ -1,3 +1,2 @@
 
-![17610846241792215116706068617686](https://github.com/user-attachments/assets/39131fe6-6762-4020-8570-a293d1572dbe)
-oh noes..... 
+![17610858785871201376548750914972](https://github.com/user-attachments/assets/5892a902-9b68-496a-be2f-03a7ec9fc16f)   me! 
